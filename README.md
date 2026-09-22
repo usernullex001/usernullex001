@@ -1,173 +1,275 @@
 <div align="center">
 
-# 🌸🎀 hiiii~ 🎀🌸
+# 🌷🎀 H E L L O O O O O O 🎀🌷
 
-<img src="https://media.giphy.com/media/JIX9t2j0ZTN9S/giphy.gif" width="220">
+<img src="https://media.giphy.com/media/JIX9t2j0ZTN9S/giphy.gif" width="260">
 
-### 💗 welcome to my tiny little corner 💗
+# 🐱💗 welcome to my little silly universe 💗🐱
 
-🐱 🌷 🧸 🍓 🎀 🐾 🌸 🩷 ✨
+🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸
 
----
-
-## 🐾 hii hiiii~!
+## 🥺👉👈 hiii...
 
 ૮ ˶ᵔ ᵕ ᵔ˶ ა
 
-hiiiiii!! 💕
-welcome welcome welcome~ 🌸
+hiii hiiii hiiiiiiiiii~!!! 💕💕💕
 
-this is my little cozy place on github 🧸💗
+you found my profile... 😳
 
-please take a tiny strawberry 🍓
-and a tiny cat 🐱
-and make yourself comfy~ 🎀
+how did you get here...
 
-🐾 *pat pat* 🐾
+who sent you...
 
----
+was it...
 
-## 🎀 about me 🎀
+**the cat council?** 🐱🐱🐱
 
-🌷 just a little person doing little things
-🐱 professional cat enjoyer
-🍓 strawberry enthusiast
-🧸 collector of cute things
-🌸 probably somewhere being cozy
-💗 easily distracted by cats
-✨ occasionally productive
-☁️ permanently floating around in my own little world
+oh no
+
+they know.
+
+🏃💨
 
 ---
 
-## 🩷 my favorite things 🩷
+# 🎀✨ ABOUT THE CREATURE ✨🎀
 
-🐱 cats
-🎀 ribbons
-🌸 flowers
-🍓 strawberries
-🧸 plushies
-☁️ clouds
-🌙 sleepy nights
-🫧 tiny bubbles
-🍰 cute cakes
-💌 sweet messages
-✨ sparkles
-🌷 pretty little things
+🌷 name: **Nullex**
+🐱 species: **some kind of creature**
+🍓 favorite food: **probably strawberry**
+🧸 emotional support object: **something fluffy**
+☁️ current location: **somewhere**
+🫧 brain status: **bloop**
+🎀 ribbon status: **EXTREMELY SERIOUS**
+
+```
+╭──────────────────────╮
+│      🐱             │
+│                     │
+│   thinking...       │
+│                     │
+│   ...               │
+│                     │
+│   strawberry        │
+│                     │
+╰──────────────────────╯
+```
+
+🍓🍓🍓
 
 ---
 
-## 🐈 cat department 🐈
+# 🐾 THE CAT ZONE 🐾
 
 ```text
- /\_/\
-( ˶ᵔ ᵕ ᵔ˶ )
-/ >🍓< \
+        /\_/\\
+       / o.o \\
+      /   ^   \\
+     /  >🍓<  \\
+    /__________\\
 
-meow meow meowww~ 💗
+       meow.
 ```
 
-another one:
+# 🚨 IMPORTANT 🚨
+
+THE CAT HAS A STRAWBERRY.
+
+I REPEAT.
+
+**THE CAT HAS A STRAWBERRY.**
+
+🍓🐱🍓🐱🍓🐱🍓🐱🍓
+
+please remain calm.
+
+---
+
+# 🌸✨ THINGS THAT MAKE MY BRAIN GO ✨🌸
+
+🐱 cat
+🐱 another cat
+🐱 slightly different cat
+🐱 suspicious cat
+🐱 cat wearing tiny hat
+🎀 ribbon
+🍓 strawberry
+🧸 fluffy thing
+🌷 flower
+☁️ cloud
+🫧 bubble
+✨ sparkly thing
+🍰 cake
+🥺 tiny spoon
+💗 pink object
+🌙 moon
+🐸 frog that nobody invited
+
+---
+
+# 🧸 MY VERY SERIOUS COLLECTION 🧸
+
+🎀 1 tiny ribbon
+🎀 2 tiny ribbons
+🎀 3 tiny ribbons
+🎀 approximately 847 invisible ribbons
+
+I don't know where the last one came from.
+
+it knows too much.
+
+---
+
+# 🍓 STRAWBERRY NEWS 🍓
+
+### BREAKING NEWS 🚨
+
+local strawberry:
+
+**🍓**
+
+is still strawberry.
+
+experts are shocked.
+
+scientists are crying.
+
+one cat has been interviewed:
+
+> "meow."
+
+more information at 11.
+
+📺🐱
+
+---
+
+# 🐇 RANDOM LITTLE THINGS 🐇
+
+🐇 ← he doesn't know why he's here
+
+🦆 ← neither does he
+
+🪿 ← actively causing problems
+
+🐸 ← legally cannot be trusted
+
+🦐 ← just vibing
+
+🦑 ← knows something
+
+🧍 ← who invited this guy
+
+---
+
+# 🎀 DAILY ROUTINE 🎀
+
+🌞 wake up
+
+🥺 exist
+
+🍓 think about strawberry
+
+🐱 find cat
+
+🎀 become emotionally attached to ribbon
+
+🧸 stare at ceiling
+
+☁️ become cloud
+
+🌙 become sleepy
+
+😴 disappear
+
+🐱 repeat
+
+---
+
+# 💗 IF YOU HAVE COME THIS FAR 💗
+
+you have been exposed to:
+
+**87% cat** 🐱
+**42% strawberry** 🍓
+**193% ribbon** 🎀
+**∞% nonsense** 🫧
+
+there is no cure.
+
+the only treatment is:
 
 ```text
-        ♡
-   /\_/\
-  (｡•ㅅ•｡)
-  / づ🎀
+🐱
+  🎀
+    🍓
+      🧸
+        🌸
+          🐱
+            🎀
 ```
-
-and one more because why not:
-
-```text
- /\_/\
-( =ω= )
-( つ つ
- しーＪ
-```
-
-🐾🐾🐾🐾🐾🐾🐾🐾🐾
 
 ---
 
-## 🌷 tiny garden 🌷
-
-🌸 🌷 🌼 🌹 🌺 🌻 🌸 🌷 🌼 🌹 🌺 🌻
-
-```
-  🌷
-```
-
-🌸   🌸
-🌱  🌱  🌱
-🌿🌿🌿🌿🌿🌿🌿
-
-🌸 may your day be soft 🌸
-🌷 may your problems be tiny 🌷
-🍓 may your snacks be tasty 🍓
-🐱 may a cat appear nearby 🐱
-
----
-
-## 🍓 important information 🍓
-
-💗 this place contains:
-
-🐱 cats
-🎀 excessive amounts of pink
-🌸 flowers
-🍓 strawberries
-🧸 tiny creatures
-✨ sparkles
-☁️ clouds
-🫧 suspicious amounts of cuteness
-
-⚠️ enter at your own risk ⚠️
-
-side effects may include:
-
-> 🐱 uncontrollable smiling
-> 🎀 sudden desire for ribbons
-> 🍓 strawberry cravings
-> 🧸 emotional attachment to plushies
-
----
-
-## 💌 a tiny message for you 💌
-
-🌸
-
-you are doing great.
-
-even if today is a little messy,
-even if things don't go perfectly,
-you still deserve a tiny break. 🧸
-
-so...
-
-take a breath 🌷
-drink some water 🫧
-eat something yummy 🍓
-and give yourself a tiny pat on the head 🐱
-
-૮ ˶ᵔ ᵕ ᵔ˶ ა
-
-you got this!! 💗🎀✨
-
----
+# 🌷 FINAL MESSAGE 🌷
 
 <div align="center">
 
-# 🐾 bye bye~ 🐾
+## 🥺👉👈
 
-🌸 🎀 🐱 🍓 🧸 🌷 🩷 ✨ 🌸
+thank you for entering
 
-### thank you for visiting!! 💗
+my extremely important
 
-<img src="https://media.giphy.com/media/mlvseq9yvZhba/giphy.gif" width="180">
+very professional
 
-🌷 come back anytime~ 🌷
+highly scientific
 
-**meow meow~ 🐱💗**
+**little silly zone**
+
+💗💗💗
+
+please take this:
+
+# 🍓
+
+and this:
+
+# 🐱
+
+and also this:
+
+# 🎀
+
+ok bye
+
+wait
+
+one more thing
+
+# 🐱
+
+ok NOW bye
+
+...
+
+# 🐱
+
+why are you still here
+
+😭
+
+---
+
+### 🌸🐱🎀🍓🧸🫧☁️🌷💗✨🌸
+
+**meow meow meow meow meow meow meow**
+
+૮ ˶ᵔ ᵕ ᵔ˶ ა
+
+### 💗 thank u for visiting 💗
+
+🌷🌷🌷🌷🌷🌷🌷🌷🌷
 
 </div>
 
